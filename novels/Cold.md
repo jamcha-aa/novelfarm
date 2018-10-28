@@ -1,0 +1,17 @@
+
+
+# 粥
+
+布団一枚は寒く，二枚は暑い。そんな夜に，二枚の布団をかけて寝た結果が体温 38 ℃。  
+
+<br>  
+<br>  
+
+<br>  
+
+この物語はフィクションであり，実在の人物・団体とは一切関係ありません。  
+
+Copyright (c) 2018 jamcha (jamcha.aa@gmail.com).  
+
+![cc by-nc-sa](https://i.creativecommons.org/l/by-nc-sa/4.0/88x31.png)  
+
