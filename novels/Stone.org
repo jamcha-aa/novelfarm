@@ -18,9 +18,13 @@
   <br>
   <br>
 
+  -- 了 --
+
   <br>
 
   この物語はフィクションであり，実在の人物・団体とは一切関係ありません。
+
+  [[https://www.youtube.com/watch?v=nvwbtmfIeUA]["8 Months of D3"]] inspired me to write this novel but it does not mention about D3 at all.
 
   Copyright (c) 2019 jamcha (jamcha.aa@gmail.com).
 
